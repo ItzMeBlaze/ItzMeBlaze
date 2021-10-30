@@ -1,6 +1,6 @@
-- 👋 Hi, I’m Blaze
-- I’m currently learning Java , Javascript , C , Ethical Hacking....
-- 📫 DM me on discord at Blaze <3#8374
+- 👋 Hi, I'm Neo
+- I’m currently learning Javascript , C++.
+- 📫 DM me on discord at Neo 💖#2021
+- i work on minecraft 1.12.2 and 1.8.9 hacked client and other stuff.
 
-Lol default read me is bad.
 
